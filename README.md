@@ -1,0 +1,2 @@
+# X_SALE_X
+FUCK YOUR DECODE🙂😂
